@@ -1,0 +1,1 @@
+# I will try to explain somethign about nlp, but very likely not do well
